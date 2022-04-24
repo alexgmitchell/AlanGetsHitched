@@ -15,10 +15,11 @@ On this site you can find information about
 - The Day Itself
 - Where to Stay
 - FAQs
-
-
+<br/>
+<br/>
+<br/>
 
 ## RSVP
-Please email us on alex.gmitchell12@gmail.com by **3rd July** and tell us about any dietary requirements.
+Please email us on **alex.gmitchell12@gmail.com** by **3rd July** and tell us about any dietary requirements.
 
 You can also use this email address for any other enquiries

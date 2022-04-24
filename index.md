@@ -4,13 +4,10 @@ title: "Home"
 ---
 <a href="https://lh3.googleusercontent.com/F67FZavXFOAZm7Rwq_YNZkg-QuUnfegMOw_r3aishMDgW8R_qac7v2eLqmp6fNFtSa8xutwkH3WB5jRNVzl8XhAKejgoV_9F02yxut9aMOX0O6blXP_bBpEyV-kMakV7OrBLUIJBYQ=w2400?source=screenshot.guru"> <img src="https://lh3.googleusercontent.com/F67FZavXFOAZm7Rwq_YNZkg-QuUnfegMOw_r3aishMDgW8R_qac7v2eLqmp6fNFtSa8xutwkH3WB5jRNVzl8XhAKejgoV_9F02yxut9aMOX0O6blXP_bBpEyV-kMakV7OrBLUIJBYQ=w600-h315-p-k" /> </a>
 
-# ALEX & ANDERS ARE GETTING MARRIED (YAY!)
-We excited to see you to celebrate our wedding on 
-
-## 3rd September 2022 
-
-## at: [The Barn at Harburn](https://www.harburnbarn.co.uk/)
-West Calder, Scotland.
+# Alex & Anders are getting married (YAY!)
+We excited to see you to celebrate our wedding with you </br>
+on: **3rd September 2022**</br>
+at: **[The Barn at Harburn](https://www.harburnbarn.co.uk/), West Calder, Scotland**
 
 
 ## Venue

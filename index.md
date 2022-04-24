@@ -16,11 +16,9 @@ On this site you can find information about
 - Where to Stay
 - FAQs
 
+
+
 ## RSVP
-Please email us on alex.gmitchell12@gmail.com by **3rd July** and tell us about any dietary requirements<br/>
-You this email address for any other enquiries
+Please email us on alex.gmitchell12@gmail.com by **3rd July** and tell us about any dietary requirements.
 
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
+You can also use this email address for any other enquiries

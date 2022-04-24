@@ -14,5 +14,4 @@ Please let us know if you would like to take the Edinburgh bus & we will add you
 
 Alternatively, both West Calder & Livingston have train stations and the barn is a short taxi-ride away.
 
-If you plan on driving, there is some parking at The Barn and you are welcome to leave your car overnight.<br/>
-Please let us know if you plan to do this, so we can make sure there are enough spaces for everyone.
+If you plan on driving, there is some parking at The Barn and you are welcome to leave your car overnight. Please let us know if you plan to do this, so we can make sure there are enough spaces for everyone.

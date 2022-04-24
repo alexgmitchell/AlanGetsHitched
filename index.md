@@ -1,3 +1,7 @@
+---
+layout: home
+---
+
 ## **Alex & Anders are getting married!**
 
 We excited to see you to celebrate our wedding on 

@@ -12,9 +12,13 @@ at: **The Barn at Harburn, West Calder, Scotland**
 On this site you can find information about
 - [The Venue](venue.md)
 - [Gifts](gifts.md)
-- Events on The Day
-- Accommodation
+- The Day Itself
+- Where to Stay
 - FAQs
+
+## RSVP
+Please email us on alex.gmitchell12@gmail.com by **3rd July** and tell us about any dietary requirements<br/>
+You this email address for any other enquiries
 
 **Bold** and _Italic_ and `Code` text
 

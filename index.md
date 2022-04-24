@@ -6,9 +6,7 @@ We excited to see you to celebrate our wedding on
 
 at: [The Barn at Harburn](https://www.harburnbarn.co.uk/), West Calder, Scotland.
 
-<a href="https://lh3.googleusercontent.com/Kw2iUPfh4Z8Sjpux4jdBKhOU0-rFigUVpsMAet0R_Er-XZnFBO_zPgccuqtRFwPT5qH-6xz5UDgfAvRLAPJK6JZlGlEfhBZiDiRfyTjviw37Dg5j38jwtSEOgaaFeHTm1hLhTbj3vA=w2400?source=screenshot.guru"> <img src="https://lh3.googleusercontent.com/Kw2iUPfh4Z8Sjpux4jdBKhOU0-rFigUVpsMAet0R_Er-XZnFBO_zPgccuqtRFwPT5qH-6xz5UDgfAvRLAPJK6JZlGlEfhBZiDiRfyTjviw37Dg5j38jwtSEOgaaFeHTm1hLhTbj3vA=w600-h315-p-k" /> </a>
-
-
+<a href="https://lh3.googleusercontent.com/cY8BXCwazWQZm8BweM1CtWGDvP4odxP2AYj-OV0ES2RrTpshjKqY0Xl_TGH3MOBXV2-mJF2ZrrlsKQIBj3c6OcfW1t7M_VNLRKNNDC52mJwBb8sIgg5ve2l-luJN7sDvLxoFtC-uNg=w2400?source=screenshot.guru"> <img src="https://lh3.googleusercontent.com/cY8BXCwazWQZm8BweM1CtWGDvP4odxP2AYj-OV0ES2RrTpshjKqY0Xl_TGH3MOBXV2-mJF2ZrrlsKQIBj3c6OcfW1t7M_VNLRKNNDC52mJwBb8sIgg5ve2l-luJN7sDvLxoFtC-uNg=w600-h315-p-k" /> </a>
 
 
 ## Venue

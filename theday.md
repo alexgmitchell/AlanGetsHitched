@@ -7,8 +7,10 @@ title: On The Day
 
 ## The program
 
-### 14.00:  Ceremony
-- Followed by a reception with outdoor games, baked goods & bubbles
-### 17.00:  Dinner
-- Including speeches, sing-alongs and games from our guests
-### 20.00:  Dancing!
+**14.00:  Ceremony**<br/>
+Followed by a reception with outdoor games, baked goods & bubbles
+
+**17.00:  Dinner**<br/>
+Including speeches, sing-alongs and games from our guests
+
+**20.00:  Dancing until the early hours!**

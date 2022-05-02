@@ -7,6 +7,6 @@ title: Gift List
 
 There is no obligation to give gifts. We are aware that most of our guests are travelling to Scotland, and, most of all, we just want to you come and enjoy yourselves on the day.
 
-If you would like to give a gift, we would be delighted if you are able to contribute a small amount to our honeymoon. We have set up a GoFundMe for this specific purpose, which you can find [here](LINKTBD). 
+If you would like to give a gift, we would be delighted if you are able to contribute a small amount to our honeymoon. We have set up a GoFundMe for this specific purpose, which you can find [here](https://gofund.me/b9be96c1). 
 
-Alternatively, you can find the guest list [here](LINKTBD).
+Alternatively, you can find the guest list [here](LINKTBD). If you are buying a gift from the list, please be aware that we will be travelling back to Denmark from the UK and will have limited space in our car. Therefore, we recommend you purchase the gift from a website, such as from [Magazin](https://www.magasin.dk/) or [Salling](https://salling.dk/bolig/c-6/), where we can pick it up locally in Aarhus.

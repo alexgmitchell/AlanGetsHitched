@@ -15,7 +15,7 @@ Including speeches, sing-alongs and games from our guests
 
 **20.00:  Dancing until the early hours!**
 
-## Speeches, songs & games (and a bit more about this Danish tradition)
+### Speeches, songs & games (and a bit more about this Danish tradition)
 All our guests are welcome to contribute to the evening's entertainment. This can either be in the more traditional form of a speech, writing a song (for us all to sing-along) or playing a game. These can be done independently or in a group, which works especially well if you have a game planned. These types of things are typical at Danish weddings and generally make for a fun and entertaining dinner.
 
-Please let either the toastmaster, Christian, know if you would like to contribute on EMAIL, and what type of thing you will be planning. If you have any questions about this and what type of thing might be expected, then feel free to ask Christian (or find a friendly, local Dane and ask them!).
+Please email either the toastmaster, Christian (catstott@live.dk), or us (alex.gmitchell12@gmail.com) if you would like to contribute. In your email, let us know whether you will be giving a speech, creating a sing-a-long or a game. If you have any questions about this and what type of thing might be expected, then feel free to ask Christian or Anders.

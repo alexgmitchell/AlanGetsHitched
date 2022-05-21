@@ -3,6 +3,8 @@ layout: page
 title: Gift List
 ---
 
+PLEASE NOTE WE ARE STILL EDITING THIS PAGE & THE GIFT LIST WILL BE UPLOADED SOON
+
 <a href="https://lh3.googleusercontent.com/ldR5ocBLhSeOm2jYfbhG37HvUQtcEKN3eWu5FrmauqyoBRW6GZNCNlWK6Pay9jLRCyaswn2bdKWWuJRNESbJkI3vLp4X_7ZW41QD_ZLXG7X3juEWjx56-xWBiOTGRr6mWLS7DoxAgQ=w2400?source=screenshot.guru"> <img src="https://lh3.googleusercontent.com/ldR5ocBLhSeOm2jYfbhG37HvUQtcEKN3eWu5FrmauqyoBRW6GZNCNlWK6Pay9jLRCyaswn2bdKWWuJRNESbJkI3vLp4X_7ZW41QD_ZLXG7X3juEWjx56-xWBiOTGRr6mWLS7DoxAgQ=w600-h315-p-k" /> </a>
 
 There is no obligation to give gifts. We are aware that most of our guests are travelling to Scotland, and, most of all, we just want to you come and enjoy yourselves on the day.

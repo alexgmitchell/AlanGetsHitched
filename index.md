@@ -16,6 +16,8 @@ Here, you can find information about
 <br/>
 <br/>
 
+_We are editing this page as we go, so please keep checking it for updates and info!_
+
 ## RSVP
 Please email us on **alex.gmitchell12@gmail.com** by **3rd July** and tell us about any dietary requirements.
 

@@ -11,7 +11,7 @@ There is no obligation to give gifts. We are aware that most of our guests are t
 
 If you would like to give a gift, we would be delighted if you are able to contribute a small amount to our honeymoon. We have set up a GoFundMe for this specific purpose, which you can find [here](https://gofund.me/b9be96c1). 
 
-**If you are buying a gift from the list, please be aware that we will be travelling back to Denmark from the UK and will have limited space in our car.** 
+Alternatively, you can find our gift list [here](https://docs.google.com/spreadsheets/d/1Ip5vdkOU3Y2OFw1VNXHRGgmun7bNEcKLy0aAcPcRyqY/edit?usp=sharing). **If you are buying a gift from the list, please be aware that we will be travelling back to Denmark from the UK and will have limited space in our car.** 
 
-You can find our gift list [here](https://docs.google.com/spreadsheets/d/1Ip5vdkOU3Y2OFw1VNXHRGgmun7bNEcKLy0aAcPcRyqY/edit?usp=sharing). We have included links to the gifts for information, but please do not feel obliged to buy these new and we welcome second-hand gift purchases! 
+We have included links to the gifts for information, but please do not feel obliged to buy these new and we welcome second-hand gift purchases! 
 Please purchase a gift from a website, where we can pick it up in Aarhus or to send gifts directly to us at our home address.

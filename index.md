@@ -2,6 +2,8 @@
 layout: default
 title: "Home"
 ---
+**We are editing this page as we go, so please keep checking it for updates and info!**
+
 <a href="https://lh3.googleusercontent.com/F67FZavXFOAZm7Rwq_YNZkg-QuUnfegMOw_r3aishMDgW8R_qac7v2eLqmp6fNFtSa8xutwkH3WB5jRNVzl8XhAKejgoV_9F02yxut9aMOX0O6blXP_bBpEyV-kMakV7OrBLUIJBYQ=w2400?source=screenshot.guru"> <img src="https://lh3.googleusercontent.com/F67FZavXFOAZm7Rwq_YNZkg-QuUnfegMOw_r3aishMDgW8R_qac7v2eLqmp6fNFtSa8xutwkH3WB5jRNVzl8XhAKejgoV_9F02yxut9aMOX0O6blXP_bBpEyV-kMakV7OrBLUIJBYQ=w600-h315-p-k" /> </a>
 
 # Alex & Anders are getting married (YAY!)
@@ -15,8 +17,6 @@ Here, you can find information about
 - FAQs
 <br/>
 
-**** <br/>
-We are editing this page as we go, so please keep checking it for updates and info!
 
 ## RSVP
 Please email us on **alex.gmitchell12@gmail.com** by **3rd July** and tell us about any dietary requirements.

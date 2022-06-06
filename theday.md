@@ -7,6 +7,8 @@ title: On The Day
 
 ## The program
 
+Everything is taking place at the same venue, so once you have arrived you can relax, drink & enjoy
+
 **14.00:  Ceremony**<br/>
 Followed by a reception with outdoor games, baked goods & bubbles
 

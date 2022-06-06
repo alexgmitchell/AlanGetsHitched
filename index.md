@@ -13,7 +13,7 @@ Here, you can find information about
 - [The Venue](venue.md)
 - [Gifts](gifts.md)
 - [The Day](theday.md)
-- Where to Stay
+- Transport
 - FAQs
 <br/>
 

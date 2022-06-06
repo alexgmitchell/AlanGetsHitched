@@ -3,7 +3,7 @@ layout: page
 title: Gift List
 ---
 
-*Please note: the gift list is now live and being edited as we go, please keep an eye on it if you wish to purchase from there.*
+*Please note: the gift list is now live and being edited as we go, please keep an eye on it if you wish to purchase from there*
 
 <a href="https://lh3.googleusercontent.com/ldR5ocBLhSeOm2jYfbhG37HvUQtcEKN3eWu5FrmauqyoBRW6GZNCNlWK6Pay9jLRCyaswn2bdKWWuJRNESbJkI3vLp4X_7ZW41QD_ZLXG7X3juEWjx56-xWBiOTGRr6mWLS7DoxAgQ=w2400?source=screenshot.guru"> <img src="https://lh3.googleusercontent.com/ldR5ocBLhSeOm2jYfbhG37HvUQtcEKN3eWu5FrmauqyoBRW6GZNCNlWK6Pay9jLRCyaswn2bdKWWuJRNESbJkI3vLp4X_7ZW41QD_ZLXG7X3juEWjx56-xWBiOTGRr6mWLS7DoxAgQ=w600-h315-p-k" /> </a>
 

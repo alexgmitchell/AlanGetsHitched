@@ -12,12 +12,12 @@ Everything is taking place at the same venue, so once you have arrived you can r
 **14.00:  Ceremony**<br/>
 Followed by a reception with outdoor games, baked goods & bubbles
 
-**17.00:  Dinner**<br/>
+**16.30:  Dinner**<br/>
 Including speeches, sing-alongs and games from our guests
 
-**19.30: Cheese (Cake) Cutting & Dessert**
+**19.00: Cheese (Cake) Cutting & Dessert**
 
-**20.30:  Dancing!**
+**20.00:  Dancing!**
 
 ### Speeches, songs & games (and a bit more about this Danish tradition)
 All our guests are welcome to contribute to the evening's entertainment. This can either be in the more traditional form of a speech, writing a song (for us all to sing-along) or playing a game. These can be done independently or in a group, which works especially well if you have a game planned. These types of things are typical at Danish weddings and generally make for a fun and entertaining dinner.

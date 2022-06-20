@@ -3,12 +3,7 @@ layout: page
 title: Transport
 ---
 
-<script src="https://cdn.jsdelivr.net/npm/publicalbum@latest/embed-ui.min.js" async></script>
-<div class="pa-gallery-player-widget" style="width:100%; height:480px; display:none;"
-  data-link="https://photos.app.goo.gl/RZ4H6d8v73Uaknmf9"
-  data-title="New item by Alexandra Mitchell">
-  <object data="https://lh3.googleusercontent.com/q2yOjUOF62QnEzsTCyJr7ZbQc1wk8HGWvQk5p7R3RKviH41ubpD_fagN46ZBz2nsBlyxdFLgBsglpe9HSgBJRdHiqLJfhKDgevHKcel3RyHNc1wKfc8K701yY1NKtjd43K9IN92nxQ=w1920-h1080"></object>
-</div>
+<a href="https://lh3.googleusercontent.com/tgGTI5ENL_tDQRi4vmQfQOTL3PoC87zLCCU6cP_1ZGEjB3NC19ND5yAB2CsG133iOPJ5bQ1zllY1e_f2RQxTk7oX3wtU4aaN3Lm0qXdz-EtSeI_1pm-bh29Q2htWpD-1jMY3qas_BA=w2400?source=screenshot.guru"> <img src="https://lh3.googleusercontent.com/tgGTI5ENL_tDQRi4vmQfQOTL3PoC87zLCCU6cP_1ZGEjB3NC19ND5yAB2CsG133iOPJ5bQ1zllY1e_f2RQxTk7oX3wtU4aaN3Lm0qXdz-EtSeI_1pm-bh29Q2htWpD-1jMY3qas_BA=w600-h315-p-k" /> </a>
 
 Our venue is near both Edinburgh and Glasgow, which has both have airports and major train stations that connect you to the rest the country. For details and location of the venue [click here](venue.md)
 

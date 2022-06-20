@@ -19,13 +19,13 @@ Please let us know if you would like to take this bus asap & we will add you to 
 
 For those would would like to drive, you are welcome to leave your car overnight at The Barn but please be aware spaces may be limited. Below are a list of taxi companies in the area, and it is advisable to book in advance for pick up/drop off.
 
-**West Lothian Private Hire (Bathgate)**: 01506 655555
+**West Lothian Private Hire (Bathgate)**: 01506 655555<br/>
 Recommend using their App or phoning in for set fare
 
-**West Lothian Private Hire (Livingston)**: 01506 434343
+**West Lothian Private Hire (Livingston)**: 01506 434343<br/>
 Recommend using their App or phoning in for set fare
 
-**All The Fours**: 01506 444444
+**All The Fours**: 01506 444444<br/>
 They also have an app but are on the meter, not set fare
 
 **Fair Deal Cabs**: 01506 499111

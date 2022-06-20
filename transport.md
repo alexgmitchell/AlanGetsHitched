@@ -15,9 +15,12 @@ Please let us know if you would like to take this bus asap & we will add you to 
 
 ### Public Transport
 
+Both West Calder and Livingston train stations are nearby and have connections to and from Edinburgh and Glasgow.<br/> 
+If wish to take public transport back to **Edinburgh** the last train from Livingston South is at 00:06. If you are travelling to **Glasgow** you should use the same bus/train and transfer at Edinburgh to get a late bus back to Glasgow.
+
 ### Driving & Taxis
 
-For those would would like to drive, you are welcome to leave your car overnight at The Barn but please be aware spaces may be limited. Below are a list of taxi companies in the area, and it is advisable to book in advance for pick up/drop off.
+For those would would like to drive, you are welcome to leave your car overnight at The Barn to get a taxi back, but please be aware spaces may be limited. Below are a list of taxi companies in the West Lothian area, and it is advisable to book in advance for pick up/drop off.
 
 **West Lothian Private Hire (Bathgate)**: 01506 655555<br/>
 Recommend using their App or phoning in for set fare

@@ -5,7 +5,9 @@ title: Transport
 
 <a href="https://lh3.googleusercontent.com/tgGTI5ENL_tDQRi4vmQfQOTL3PoC87zLCCU6cP_1ZGEjB3NC19ND5yAB2CsG133iOPJ5bQ1zllY1e_f2RQxTk7oX3wtU4aaN3Lm0qXdz-EtSeI_1pm-bh29Q2htWpD-1jMY3qas_BA=w2400?source=screenshot.guru"> <img src="https://lh3.googleusercontent.com/tgGTI5ENL_tDQRi4vmQfQOTL3PoC87zLCCU6cP_1ZGEjB3NC19ND5yAB2CsG133iOPJ5bQ1zllY1e_f2RQxTk7oX3wtU4aaN3Lm0qXdz-EtSeI_1pm-bh29Q2htWpD-1jMY3qas_BA=w600-h315-p-k" /> </a>
 
-Our venue is near both Edinburgh and Glasgow, which has both have airports and major train stations that connect you to the rest of the country. For details and location of the venue [click here](venue.md). Read on for further transport information.
+Our venue is near both Edinburgh and Glasgow, although it is easier to travel to from Edinburgh. Edinburgh has both a major train station and airport that can connect you to the rest of UK/world. For details and location of the venue [click here](venue.md). Read on for further transport information.
+
+Please let us know if you have any questions, we are happy to help!
 
 ### The Bus
 
@@ -15,8 +17,8 @@ Please let us know if you would like to take this bus asap & we will add you to 
 
 ### Public Transport
 
-Both West Calder and Livingston train stations are nearby and have connections to and from Edinburgh and Glasgow.<br/> 
-If wish to take public transport back to **Edinburgh** the last train from Livingston South is at 00:06. If you are travelling to **Glasgow** you should use the same bus/train and transfer at Edinburgh to get a late bus back to Glasgow.
+West Calder and Livingston train stations are both nearby. West Calder is only 5 minute drive away from the venue, whilst Livingston is around 15-20 minutes by car. Both stations have connections to and from Edinburgh and Glasgow.<br/> 
+If wish to take public transport back to *Edinburgh* the last train from **West Calder** is at **00:02** **Livingston South** is at **00:06**. If you are travelling to *Glasgow* you should use the same bus/train and transfer at Edinburgh to get a late bus back to Glasgow.
 
 ### Driving & Taxis
 
@@ -38,3 +40,5 @@ They also have an app but are on the meter, not set fare
 **Murieston Private Hire**: 01506 499855
 
 **Real Radio Cars**: 01506 433433
+
+<a href="https://lh3.googleusercontent.com/5Sa0tIstWIyg-RmISm-504OLz7MA1ELQ0nV_cR-7ynYg5BHKOs2c6Cie_SaSWe54RSpaaOj8B0WEa3Jhxt04HtZVrckO0hV9LZN6pDqjHzJ2lvYXD3omIVwKKfWHWPZjLly8mjFlbw=w2400?source=screenshot.guru"> <img src="https://lh3.googleusercontent.com/5Sa0tIstWIyg-RmISm-504OLz7MA1ELQ0nV_cR-7ynYg5BHKOs2c6Cie_SaSWe54RSpaaOj8B0WEa3Jhxt04HtZVrckO0hV9LZN6pDqjHzJ2lvYXD3omIVwKKfWHWPZjLly8mjFlbw=w600-h315-p-k" /> </a>

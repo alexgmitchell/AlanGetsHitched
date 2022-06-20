@@ -11,7 +11,7 @@ Please let us know if you have any questions, we are happy to help!
 
 ### The Bus
 
-We have booked a bus that departs from St Andrews Square, Edniburgh at 12:30, to arrive in good time for our ceremony. The bus will then take guests back to Edinburgh at the end of the night, departing from The Barn at 23:45. The bus has space for 31 guests, of which there are 19 spaces left. 
+We have booked a bus for our guests that departs from St Andrews Square, Edniburgh at 12:30, to arrive in good time for our ceremony. The bus will then take guests back to Edinburgh at the end of the night, departing from The Barn at 23:45. The bus has space for 31 guests, of which there are 19 spaces left. 
 
 Please let us know if you would like to take this bus asap & we will add you to the list.
 

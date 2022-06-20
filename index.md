@@ -14,7 +14,7 @@ Here, you can find information about
 - [Gifts](gifts.md)
 - [The Day](theday.md)
 - [Transport](transport.md)
-- FAQs
+- [FAQs](FAQs.md)
 <br/>
 
 

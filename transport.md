@@ -9,12 +9,33 @@ Our venue is near both Edinburgh and Glasgow, which has both have airports and m
 
 ### The Bus
 
-arriving in time for the ceremony at 14.00 and departing at midnight. Please let us know if you would like to take the Edinburgh bus & we will add you to the list.
-### Driving & Taxis
+We have booked a bus that departs from St Andrews Square, Edniburgh at 12:30, to arrive in good time for our ceremony. The bus will then take guests back to Edinburgh at the end of the night, departing from The Barn at 23:45. The bus has space for 31 guests, of which there are 19 spaces left. 
 
-For those would would like to drive, you are welcome to leave your car overnight at The Barn but please be aware spaces may be limited. Below are a list of taxi companies in the area, and it is advisable to book in advance.
-
+Please let us know if you would like to take this bus asap & we will add you to the list.
 
 ### Public Transport
 
-### Taxis
+### Driving & Taxis
+
+For those would would like to drive, you are welcome to leave your car overnight at The Barn but please be aware spaces may be limited. Below are a list of taxi companies in the area, and it is advisable to book in advance for pick up/drop off.
+
+West Lothian Private Hire (Bathgate) (Recommend using their App or phoning in for set fare)
+01506 655555
+
+West Lothian Private Hire (Livingston) (Recommend using their App or phoning in for set fare)
+01506 434343
+
+All The Fours (They have an app too but are on the meter, not set fare)
+01506 444444
+
+Fair Deal Cabs
+01506 499111
+
+West Lothian Taxis 
+01506 444550
+
+Murieston Private Hire
+01506 499855
+
+Real Radio Cars
+01506 433433

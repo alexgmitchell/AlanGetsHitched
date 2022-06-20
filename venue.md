@@ -9,4 +9,6 @@ We are getting married at [The Barn at Harburn](https://www.harburnbarn.co.uk/),
 
 For those of you staying in Edinburgh, we have booked a bus that will take you to and from the venue. Places are limited so please see [the Transport page](transport.md) for more information on this and other options.
 
+If you are so inclined, there will also be places to pitch a tent/park a camping van on the estate. You will have access to the showers and toilets at the venue accommodation. Please inform us if you plan to do this, we we will need to know who is going to be staying on site.
+
 <a href="https://lh3.googleusercontent.com/Szh6EqJhkkVwJGCP9rV5EvNsralov71KV23JcF7-25MxmWkEdJqrk7l_8FzU-WJXAleVle7KtmJNC4JxfLek7EZXFde9F1QRnn4hFQuY8CMxDWUp1i7bKPsgAjE9CngmAH2CTruYIQ=w2400?source=screenshot.guru"> <img src="https://lh3.googleusercontent.com/Szh6EqJhkkVwJGCP9rV5EvNsralov71KV23JcF7-25MxmWkEdJqrk7l_8FzU-WJXAleVle7KtmJNC4JxfLek7EZXFde9F1QRnn4hFQuY8CMxDWUp1i7bKPsgAjE9CngmAH2CTruYIQ=w600-h315-p-k" /> </a>

@@ -40,5 +40,3 @@ They also have an app but are on the meter, not set fare
 **Murieston Private Hire**: 01506 499855
 
 **Real Radio Cars**: 01506 433433
-
-<a href="https://lh3.googleusercontent.com/JMg6-FtF7BmUks90Zb7--8eXI2BB0kKajmGFQLhoiLcOcfeUaj51QG6Gbd1NAf7nER9BdsAyGSZXmlutdcY6XnfdzqXMtUDuHrEP_glhjE3unYT9nswt-CDaRMKJlW0hwe2S2_oy8w=w2400?source=screenshot.guru"> <img src="https://lh3.googleusercontent.com/JMg6-FtF7BmUks90Zb7--8eXI2BB0kKajmGFQLhoiLcOcfeUaj51QG6Gbd1NAf7nER9BdsAyGSZXmlutdcY6XnfdzqXMtUDuHrEP_glhjE3unYT9nswt-CDaRMKJlW0hwe2S2_oy8w=w600-h315-p-k" /> </a>
